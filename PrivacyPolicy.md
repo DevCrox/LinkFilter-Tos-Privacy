@@ -61,5 +61,5 @@ This Privacy Policy may be updated without prior notice. Continued use of the bo
 
 ---
 
-**Contact:** [Your Discord tag, GitHub profile, or email]
+**Contact:** Discord: hi.net / Github: DevCrox / Email: crocmou370@gmail.com
 
